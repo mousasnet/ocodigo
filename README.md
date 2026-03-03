@@ -2,7 +2,7 @@
 
 > **13 sintomas de dependência digital** — uma ferramenta interativa de autoavaliação para famílias cristãs.
 
-🔗 **[Acessar o checklist →]([[https://bit.ly/checklist-digital](https://mousasnet.github.io/ocodigo)](https://mousasnet.github.io/ocodigo/))**
+🔗 **[Acessar o checklist →](https://bit.ly/checklist-digital)**
 
 ---
 
